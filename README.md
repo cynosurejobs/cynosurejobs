@@ -2,7 +2,7 @@
 - 👀 I’m interested in hiring candidates for our client requirements
 - 🌱 I’m currently learning various IT skills which help me in IT recruitment
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me corp@cynosurejobs.com www.cynosurejobs.net
 
 <!---
 cynosurejobs/cynosurejobs is a
